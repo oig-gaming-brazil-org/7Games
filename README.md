@@ -12,4 +12,4 @@ A plataforma é gerenciada sob os mais rigorosos padrões de segurança ciberné
 * **Holding Controladora:** One Internet Group
 * **Acesse o site oficial:** [7games.bet.br](https://7games.bet.br)
 * **CNPJ da Operadora:** 55.459.453/0001-72
-* **Licenças (SPA/MF):** nº 2.096, de 30 de dezembro de 2024
+* **Licença (SPA/MF):** nº 2.096, de 30 de dezembro de 2024
